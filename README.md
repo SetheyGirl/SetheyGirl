@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SetheyGirl
+- 👀 I’m interested in gaming
+- 📫 How to reach me: Text (585)-201-3297 or E-Mail SethB6615@gmail.com
